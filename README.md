@@ -1,1 +1,0 @@
-# Quantitative-methods-of-economics
